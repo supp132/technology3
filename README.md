@@ -1,2 +1,1 @@
-Технології частина 3
-Стрехалюк Андрій
+SWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAG
